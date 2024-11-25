@@ -1,0 +1,2 @@
+# Oryantasyon
+Youtube vize ödevi
